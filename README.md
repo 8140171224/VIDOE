@@ -68,3 +68,15 @@ If you need any help using the file or need special customizing please feel free
 Note: All photos are for preview only and are not included in the downloaded files.
 
 You may get the pictures from Pixabay (FREE), Unsplash (FREE)
+
+## Here I'm
+
+* [Instagram](https://www.instagram.com/pythonistas/) 
+* [Twitter](https://twitter.com/AakashPadhiyar9) 
+* [Linkedin](https://www.linkedin.com/in/aakash-padhiyar-8711aa182/) 
+
+# Information
+
+## BY aakashpadhiyar
+## 8140171224
+
